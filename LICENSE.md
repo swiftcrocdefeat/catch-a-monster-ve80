@@ -1,4 +1,4 @@
-
+Experience bee swarm simulator like never before with bee swarm simulator secure Scripts, the #1 Script. Includes auto-farm and auto-collect for
 
 
 
